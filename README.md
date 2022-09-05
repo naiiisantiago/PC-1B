@@ -1,4 +1,4 @@
 # PC-1B :)
-meu nome é Naiara <3
-eu sou aluna do thiago terra, 
-tenho 15 anos 
+seja bem vindo ao meu perfil
+meu nome é Naiara <3 tenho 15 anos e
+sou do emcino medio, aluna do thiago terra
